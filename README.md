@@ -5,8 +5,11 @@
 I'm Gubby! You prob found me from Pony town cosplaying as some character :3 
 
 ⩥I usually hang out with my friend who is Cosplaying as Octane From Apex
+
 ⩥I mainly sit afk doing other things on the side so if i miss something you say im very sorry
+
 ⩥i have all my intrests as GIFS on my strawpage + a little drawing thing send drawing thingies pls!! :]
+
 ⩥
 <!--
 **GubbyGoober/GubbyGoober** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
