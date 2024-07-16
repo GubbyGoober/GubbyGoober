@@ -10,7 +10,7 @@ I'm Gubby! You prob found me from Pony town cosplaying as an overwatch or apex c
 
 🐬⩥ i have all my intrests as GIFS on my strawpage + a little drawing thing (send drawing thingies pls!! :] ) https://thegubulator.straw.page/
 
-🦀⩥ 
+🦀⩥ dni if youre into hazbin hotel that shits nasty!!!! and or a proshipper or anyone bad really 
 <!--
 **GubbyGoober/GubbyGoober** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
