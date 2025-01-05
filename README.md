@@ -8,7 +8,7 @@ I'm Gubby! You prob found me from Pony town cosplaying as a character i like :3
 
 🌴⩥ I mainly sit afk doing other things on the side so if i miss something you say im very sorry!!! whisper me if you want an actual response from me
 
-🐬⩥ i have all my intrests as images on my strawpage + a little drawing thing (send drawing thingies pls!! :] ) https://thegubulator.straw.page/
+🐬⩥ i have all my intrests as images on my strawpage 
 
 🦀⩥ dni if youre into hazbin hotel that shits nasty!!!! and or a proshipper or anyone bad really 
 <!--
