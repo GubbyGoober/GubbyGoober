@@ -1,6 +1,6 @@
 ˖°𓇼🌊⋆🐚 HIII!!!!🌊⋆🐚𓇼°˖
-![pony-town-🔥IM INTO FAT BITCHES🔥-giggle-blinking-padded-4x](https://github.com/user-attachments/assets/6f0427b3-264b-40d5-8fe0-cca603403aaf)
-![pony-town-what's your favorite animal_🐸-silly-wink-blinking-padded-4x](https://github.com/user-attachments/assets/82170a80-12cb-4bcd-a89d-7e13309dc198)
+![pony-town-⁉merc with a mouth💢-boop-blinking-padded-4x](https://github.com/user-attachments/assets/d0e19cbb-f946-43e9-8ec3-be72b45e99f6)
+![pony-town--stand-blinking-padded-4x (1)](https://github.com/user-attachments/assets/eb314505-fdca-403a-91a8-62184e395928)
 
 I'm Gubby! You prob found me from Pony town cosplaying as a character i like :3 
 
