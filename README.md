@@ -4,7 +4,7 @@
 
 I'm Gubby! You prob found me from Pony town cosplaying as a character i like :3 
 
-🌊⩥ I usually hanging out near spawn :3
+🌊⩥ I'm usually hanging out near spawn :3
 
 🌴⩥ I mainly sit afk doing other things on the side so if i miss something you say im very sorry!!! whisper me if you want an actual response from me (HOPEFULLY I WONT MISS IT <///3)
 
